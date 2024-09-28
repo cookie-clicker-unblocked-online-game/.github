@@ -2,7 +2,7 @@
 
 Cookie Clicker Unblocked lets you enjoy the addictive, fun-filled cookie-clicking game without restrictions. Play anywhere, build your cookie empire, and unlock achievements!
 
-## ➡️➡️ [Click here to play Cookie Clicker](https://naremo.com)
+## ➡️➡️ [Click here to play Cookie Clicker Unblocked](https://naremo.com)
 
 If you’ve ever found yourself immersed in simple, yet addictive idle games, then you’ve likely heard of Cookie Clicker Unblocked. This browser-based game has taken the world by storm, captivating millions of players with its charming simplicity and deep, engaging gameplay. Whether you’re at school, work, or just need a break from your daily routine, Cookie Clicker Unblocked is the perfect way to unwind and enjoy hours of fun with just a few clicks.
 
